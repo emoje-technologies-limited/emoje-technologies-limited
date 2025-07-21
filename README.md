@@ -2,7 +2,7 @@
 
 **Innovate. Integrate. Elevate.**
 
-Emoje Technologies Limited is a forward-thinking Information Technology company based in **Lira City, Northern Uganda**. Founded in 2023, we specialize in **IT system integration**, **custom software development**, **professional services**, and **tech-driven workforce development**. We build powerful, scalable, and secure digital solutions that help clients achieve operational excellence while nurturing Africa's next generation of tech talent.
+Emoje Technologies Limited, founded in 2023, is a forward-thinking **Information Technology company** headquartered in **Lira City, Northern Uganda**. We specialize in **IT system integration, professional services, and software development**, delivering cutting-edge digital solutions to clients across multiple industries. As a privately owned business, we bring innovation, expertise, and commitment to every project—helping organizations leverage technology to achieve operational excellence and growth.
 
 ---
 
